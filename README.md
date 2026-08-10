@@ -5,3 +5,12 @@ yes hi another github hi me hi Ok bye
 <div align=center>
 <img src=https://files.catbox.moe/ha8njw.jpeg>
 </div>
+
+<div align=center>
+
+  <details>
+  <summary>pt info</summary>
+
+  hi
+</details>
+</div>
