@@ -11,6 +11,6 @@ yes hi another github hi me hi Ok bye
   <details>
   <summary>pt info</summary>
 
-  hi
+  hi my name is **Friday** / *Atlas*. 17yo. acespec. *he/him* prns.
 </details>
 </div>
