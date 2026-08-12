@@ -5,4 +5,6 @@
 <div align=center>
 
 [01](https://ultrakilled.atabook.org/) ☁️ [02](https://youtube.com/@dhutchins333?si=CFCsNjdn5hzkGrFQ) ☁️ [info](https://deadknight.straw.page)
+
+c+h is ok i dont careee w2i always
 </div>
