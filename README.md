@@ -1,5 +1,5 @@
-no<div align=center>
-<img src=https://file.garden/aeWHuH8drAn4J5-A/slimeknight%20by%20me>
+<div align=center>
+kv fvb ylhssf aopur aoha pu 5 flhyz aptl, fvb'ss zapss il wshfpun aopz zabwpk nhtl?
 </div>
 
 <div align=center>
